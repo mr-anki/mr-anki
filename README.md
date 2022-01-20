@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @mr-anki
-- 📫 Reach me at anki@nandakishore.gmail.com
+- 📫 Reach me at anki.nandakishore@gmail.com
